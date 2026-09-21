@@ -1,2 +1,0 @@
-# kun-tartibi
-# Kun-tartibi-
